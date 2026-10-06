@@ -1,2 +1,2 @@
 # Macanc-downloads
-fk discord
+The apps on right side look bum
